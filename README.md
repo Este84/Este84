@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Este84
-- 👀 I’m interested in Informatic, Technology, Grow Personality,
+- 👀 I’m interested in Informatic, Technology, Develop Personality,
 - 🌱 I’m currently learning Administration of Systems
 - 💞️ I’m looking to collaborate on ....
 - 📫 How to reach me on ...
